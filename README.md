@@ -1,4 +1,4 @@
-## *dola bem vindo au meu perfil* ✈️
+## *bem vindo au meu perfil* ✈️
 
 <!--
 **pokeredford/pokeredford** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
